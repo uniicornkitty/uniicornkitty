@@ -1,6 +1,6 @@
 <img src="https://cdn.discordapp.com/attachments/1456392141344473101/1566903977474396320/Untitled145_20261102205609.png?ex=6aea3c8b&is=6ae8eb0b&hm=9b879b670044886f009072b22b559b16d4351fffde4cb903c81b3e7dc5a8ac2a&" />
  <div align="center">
-<img src="https://visitor-badge.laobi.icu/badge?page_id=meowvile.profile&left_color=lightpink&right_color=grey&title=Atom%20Eve&v=centerfix99" alt="Visitors" />
+<img src="https://visitor-badge.laobi.icu/badge?page_id=meowvile.profile&left_color=lightpink&right_color=lightgrey&title=Atom%20Eve&v=centerfix99" alt="Visitors" />
 
 <div align="center">
 
@@ -25,7 +25,7 @@
 
 <h2><h2>
 
-<img src="https://visitor-badge.laobi.icu/badge?page_id=meowvile.profile&left_color=lightgrey&right_color=grey&title=Anissa&v=centerfix99" alt="Visitors" />
+<img src="https://visitor-badge.laobi.icu/badge?page_id=meowvile.profile&left_color=lightgrey&right_color=brown&title=Anissa&v=centerfix99" alt="Visitors" />
 <img src="https://cdn.discordapp.com/attachments/1456392141344473101/1566903977474396320/Untitled145_20261102205609.png?ex=6aea3c8b&is=6ae8eb0b&hm=9b879b670044886f009072b22b559b16d4351fffde4cb903c81b3e7dc5a8ac2a&" />
  <div align="center">
 
