@@ -19,7 +19,7 @@
 
 
 <img src="https://www.image2url.com/r2/default/gifs/1793619164520-87702b96-266f-4c45-b3ed-8dd50d4fdfa1.gif" />
-<img src="https://cdn.discordapp.com/attachments/1456392141344473101/1566937218122125452/Untitled144_20261102230851.png?ex=6aea5b81&is=6ae90a01&hm=071936d4225464a250d5f864ba80a73e4a7ced243130e9f49baa8c79781e9715&" />
+<img src="" />
 
 <div align="center">
 
