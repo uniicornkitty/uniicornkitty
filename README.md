@@ -8,7 +8,7 @@
 
 <sub>⋮ ♯ ﹒ call me luminous or eve ﹒⟢ .ᐟ</sub>
 
-<sub>. ۫ · |  —  autistic ·
+<sub>. ౿   autistic  ── .✦
 
  <sub>~  she  ⸝⸝  he  .   :</sub>
 
