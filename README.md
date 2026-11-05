@@ -12,7 +12,7 @@
 
  <sub>~  she  ⸝⸝  he  .   :</sub>
 
-<sub>-ˋˏ -- eve wilkins fictkin .  | ⋆˙⟡</sub>
+<sub>-ˋˏ -- eve wilkins kin .  | ⋆˙⟡</sub>
 
 
 <div align="center">
