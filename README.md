@@ -19,7 +19,7 @@
 
 
 <img src="https://www.image2url.com/r2/default/gifs/1793619164520-87702b96-266f-4c45-b3ed-8dd50d4fdfa1.gif" />
-<img src="https://cdn.discordapp.com/attachments/1456392141344473101/1566937487199178844/Untitled144_20261102230959.png?ex=6af6e201&is=6af59081&hm=ac57cb53f02072ad26a1161de3a67ae5ad7bd324e628dae45bee5dce25a98639&" />
+<img src="https://cdn.discordapp.com/attachments/1456392141344473101/1566783622890004510/Untitled144_20261102124352.png?ex=6af6fb75&is=6af5a9f5&hm=64a1d4b8c6770761ed4b39e9a40a2dfec2f561af21cd4563e1c7c8475b3a8a4d&" />
 
 <div align="center">
 
