@@ -6,7 +6,7 @@
 
 <h2><h2>
 
-<sub>⋮ ♯ ﹒ call me luminous or eve ﹒⟢ .ᐟ</sub>
+<sub>⋮ ♯ ﹒ call me luminous , lumi or eve ﹒⟢ .ᐟ</sub>
 
 <sub>. ౿   autistic  ── .✦
 
